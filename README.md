@@ -13,4 +13,9 @@ under internship of anvenshan foundation
 ![image](https://github.com/15601012022/project-1-website/assets/122293590/cba6e43f-b789-4a54-ba38-8055c64fd902)
 ![image](https://github.com/15601012022/project-1-website/assets/122293590/74bfecfa-bcca-46cc-894c-76d98a3ab337)
 ![image](https://github.com/15601012022/project-1-website/assets/122293590/9f7f9fd6-edea-49ef-9707-745ec67e2fbd)
+![image](https://github.com/15601012022/project-1-website/assets/122293590/cfa89dd6-9eec-4eb6-8bca-85ecef481006)
+![image](https://github.com/15601012022/project-1-website/assets/122293590/ff7a470a-0820-4075-9581-449035c7cfb8)
+![image](https://github.com/15601012022/project-1-website/assets/122293590/15e09735-0447-4ea1-a126-8ac9185b0b44)
+![image](https://github.com/15601012022/project-1-website/assets/122293590/31526ea3-4747-4431-b423-9f99a8e7c0ba)
+![image](https://github.com/15601012022/project-1-website/assets/122293590/65b8582f-615d-4fcc-97b5-a48c7f21f40d)
 
